@@ -1,4 +1,3 @@
-# ARTI-C
 ☣️ARTI☣️-C
 Conserver. Vérifier. Protéger. Transmettre avec preuve.
 📥 Originaux
